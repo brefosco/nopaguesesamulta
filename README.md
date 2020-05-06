@@ -1,2 +1,1 @@
 # nopaguesesamulta
-lit eso
